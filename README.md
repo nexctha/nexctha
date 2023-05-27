@@ -1,9 +1,6 @@
 ![nexctha](https://media.discordapp.net/attachments/1111483693995921488/1111883357618438276/wefwefew.png?raw=true)
 <p align="center">
 
-<div>
-
-<img align="right" width="400" alt="nexctha" src="https://i.imgur.com/aNBi8Jf.png"/>
 
 <h2> / about me /</h2>
   
